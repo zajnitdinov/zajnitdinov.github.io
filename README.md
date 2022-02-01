@@ -1,1 +1,0 @@
-# zajnitdinov.github.io
